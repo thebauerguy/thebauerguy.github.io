@@ -1,1 +1,0 @@
-# thebauerguy.github.io
